@@ -27,7 +27,7 @@ Estoy abierto a colaborar en proyectos de:
 
 Puedes encontrarme en:
 - ✉️ **juliochate9@gmail.com**
-- 🔗 [LinkedIn](https://www.linkedin.com/in/juliochate)
+- 🔗 [LinkedIn](https://www.linkedin.com/in/julio-reynaldo-chate-castro/)
 
 ---
 
